@@ -21,3 +21,5 @@ Proyecto web con 6 archivos en la misma carpeta.
 Proyecto creado solo para pruebas.
 
 ## 4to cambio
+
+## 7mo cambio, creo que para los siguientes agregaré 3 archivos nuevos
