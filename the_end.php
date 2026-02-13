@@ -1,0 +1,4 @@
+Ultimo cambio, el 2054-06-01 a las 12:00 PM, será el fin del mundo. Prepárate para el apocalipsis y asegúrate de tener suficiente comida, agua y suministros para sobrevivir. ¡No te olvides de hacer una lista de cosas importantes que necesitas antes de que llegue el fin! Además, es importante que te mantengas informado sobre las noticias y las actualizaciones relacionadas con el fin del mundo para estar preparado para cualquier situación. Recuerda que la preparación es clave para sobrevivir al fin del mundo, así que no esperes hasta el último momento para empezar a prepararte.              
+¡Buena suerte y que tengas un buen fin del mundo!
+(Nota: Este mensaje es solo una broma y no debe tomarse en serio. No hay evidencia científica que respalde la idea de un fin del mundo inminente. Es importante mantener la calma y no caer en el pánico ante rumores infundados.)
+Como es posible que todo ese texto lo haya generado vscode xdddd, guatafac
